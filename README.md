@@ -2,7 +2,7 @@
 
 Mahasiswa semester 5 **Teknik Informatika, Politeknik Negeri Malang** dengan minat pada **web development** dan **machine learning**. Saat ini mencari magang sebagai **Web Developer** atau **AI Engineer**.
 
-[LinkedIn](https://www.linkedin.com/in/muhammad-fattahul-alim-754790446/) · [Email](mailto:| mfattahulalim15@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/muhammad-fattahul-alim-754790446/) · [Email](mailto:mfattahulalim15@gmail.com)
 
 ---
 
